@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Balkiboy
-- 👀 I’m interested in Biking, Building, and Tch-Stuff
+- 👀 I’m interested in Biking, Building, and Tech-Stuff
 - 🌱 I’m currently learning to be a System engineer
 - 📫 Im avalable on LinkedIn (www.linkedin.com/in/vasilije-damjanovic-4ab34b253)
 - 😄 Pronouns: Call me a Horse if you want...
