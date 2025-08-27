@@ -5,4 +5,4 @@
 - 😄 Pronouns: Call me a Horse if you want...
 - ⚡ Fun fact: The Biggest Organ on a Human is the Skin
 
-I am not-so active on Github but sometimes i look into it for Help on Personal Projects.
+I am not-so active on Github but sometimes i look into my Code and try to update it after a while (if i can/want)
